@@ -1,2 +1,1 @@
-# skatethesolent
-Skatethesolent.com
+Good things on their way. Check back soon.
