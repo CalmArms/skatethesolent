@@ -1,1 +1,1 @@
-Good things on their way. Check back soon.
+https://skatethesolent.com
